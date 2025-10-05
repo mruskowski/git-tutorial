@@ -1,1 +1,1 @@
-Git Tutorial - Max Ruskowski
+UChicago Student Resource Guide
